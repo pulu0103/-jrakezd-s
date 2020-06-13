@@ -1,0 +1,2 @@
+# -jrakezd-s
+Új tanulmányok
